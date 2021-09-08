@@ -15,6 +15,6 @@ More personable. or relatable?
 Predictable?
 Trust? 
 Adaptability?
-
+/////////
 
 
